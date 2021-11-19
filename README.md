@@ -1,2 +1,2 @@
 # Paraluman-
-Paralu
+ Ilysm,takecare of yourself <3
